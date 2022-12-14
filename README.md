@@ -3,7 +3,6 @@
 
 - 📫 How to reach me **jtorogulova21@gmail.com**
 
-- ⚡ Fun fact **the most energetic who has infectious laugh**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
